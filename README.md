@@ -1,1 +1,1 @@
-# KI-Statik-Aryan
+# Statik-Aryan
